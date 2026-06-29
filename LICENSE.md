@@ -1,4 +1,4 @@
-
+Experience kaizen like never before with kaizen professional Script, the #1 Script. Includes no clip and speed for unbeatable performance.
 
 
 
